@@ -32,4 +32,4 @@ If you're interested in working together or just want to chat about programming,
 Looking forward to the next adventure! 🚀
 
 
-!(https://img.freepik.com/premium-vector/abstract-blue-background-poster-with-dynamic-technology-network-vector-illustration_29865-2608.jpg)
+![](https://img.freepik.com/premium-vector/abstract-blue-background-poster-with-dynamic-technology-network-vector-illustration_29865-2608.jpg)
