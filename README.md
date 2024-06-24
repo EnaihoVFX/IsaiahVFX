@@ -30,3 +30,6 @@ I'm currently open to commission work and excited about the opportunity to colla
 If you're interested in working together or just want to chat about programming, game development, or tech in general, feel free to reach out! Connect with me through my email [IsaiahVFX@proton.me] my Discord [@vfxisaiah]
 
 Looking forward to the next adventure! 🚀
+
+
+!(https://img.freepik.com/premium-vector/abstract-blue-background-poster-with-dynamic-technology-network-vector-illustration_29865-2608.jpg)
