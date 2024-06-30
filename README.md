@@ -27,7 +27,7 @@ I'm currently open to commission work and excited about the opportunity to colla
 
 ## 📫 Let's Connect
 
-If you're interested in working together or just want to chat about programming, game development, or tech in general, feel free to reach out! Connect with me through my email [IsaiahVFX@proton.me] my Discord [@vfxisaiah]
+If you're interested in working together or just want to chat about programming, game development, or tech in general, feel free to reach out! Connect with me through my email [enaihouwaspaul@gmail.com] my Discord [@vfxisaiah]
 
 Looking forward to the next adventure! 🚀
 
